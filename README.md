@@ -4,4 +4,4 @@ Ciallo～(∠・ω&lt; )⌒★
 <p dir="auto">私のオナニーを見てください！</p>
 </blockquote>
 
-测试网站：https://www.xn--tpvt51i.love/ciallo/
+测试网站：朝颜.love/ciallo/
